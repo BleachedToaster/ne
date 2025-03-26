@@ -5,4 +5,5 @@ kamo proste zoo je to uplne giga ez kod. Muj cil je udelat gambu se zviraty tohl
 
 
 
-![image](https://github.com/user-attachments/assets/7114127e-ee58-4571-944e-316111732e11)
+
+![garfield-fat](https://github.com/user-attachments/assets/3bfa688b-9227-48bd-8272-f26ce4a7c91f)
